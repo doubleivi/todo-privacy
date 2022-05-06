@@ -1,3 +1,6 @@
+Privacy Policy
+--------------
+
 **Introduction**
 
 Our privacy policy will help you understand what information we collect at Todo, how Todo uses it, and what choices you have. doubleM built the Todo app as a Commercial app. This SERVICE is provided by doubleM and is intended for use as is.
