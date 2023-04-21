@@ -38,4 +38,4 @@ This policy is effective as of 2022-05-08
 
 **Contact Us**
 
-If you have any questions or suggestions about my Privacy Policy, do not hesitate to contact me at support@maconets.online.
+If you have any questions or suggestions about my Privacy Policy, do not hesitate to contact me at support@doubleivi.com.
